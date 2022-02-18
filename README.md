@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Shaan000
 
-- 2 years of c++, 4 months of Python
+- 2 years of c++, 6 months of Python
 
 - I make games
 
