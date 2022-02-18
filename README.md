@@ -6,7 +6,7 @@
 
 - 👀 I’m interested in ... Programming | Math | Guitar
 
-- 📫 How to reach me ... | -carrotshaan@gmail.com | -Yo$hi#5968 (discord) | yoshi-zzz (snapchat) |
+- 📫 How to reach me ... | carrotshaan@gmail.com | Yo$hi#5968 (discord) | yoshi-zzz (snapchat) |
                             
 
 <!---
